@@ -1,1 +1,1 @@
-Open source gonna live!
+Hi, i'm no name develper.
