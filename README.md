@@ -1,1 +1,1 @@
-# Hi, i'm no name develper.I just try myself.
+# Hi, I'm no name developer. I just try myself.
